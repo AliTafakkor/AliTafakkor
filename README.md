@@ -1,6 +1,6 @@
 # Hi there, I’m Ali 👋
 
-**Ph.D. Student in Neuroscience**  
+**Ph.D. Candidate in Neuroscience**  
 University of Western Ontario  
 
 atafakko (at) uwo.ca  
